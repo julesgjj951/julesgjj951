@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...j dytj648856865hzdf
-- 📫 How to reltach me ...6177hgbfxd43tjt dyttttstr  ytje rt 4u45 u45rttrrt
+- 📫 How to reltach me ...6177hgbfxd43tjt dyttttstr  ytje rt 4u45 u45rttrrt erg
 5xfjs rt
 <!---
 julesgjj951/julesgjj951 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
