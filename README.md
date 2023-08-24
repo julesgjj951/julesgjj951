@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @julesgjj951
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... jt
 - 💞️ I’m looking to collaborate on ...j dytj648856865hzdf
 - 📫 How to reltach me ...6177hgbfxd43tjt dyttttstr  ytje rt 4u45 u45rttrrt ergw ery
 5xfjs rt
