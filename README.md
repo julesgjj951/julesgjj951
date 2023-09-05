@@ -1,7 +1,7 @@
  g re gregh y3434y34yy34  fd- 👋 Hi, I’m @julesgjj951
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... jt
-- 💞️ I’m looking to collaborate on ...j dytj648856865hzdf 45457 4wysrg
+- 💞️ I’m looking to collaborate on ...j dytj648856865hzdf 45457 4wysrgt ewtet 4
 - 📫 How to reltach me ...6177hgbfxd43tjt dyttttstr  ytje rt 4u45 u45rttrrt ergw eryeyt jejtyjjytgrt ege
 5xfjs rtr geffew
 <!---
