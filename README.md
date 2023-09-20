@@ -1,5 +1,5 @@
-www g re gregh y3434y34yy34  fd- 👋 Hi, I’m @julesgjj951 rt
-- 👀 I’m interested in ...k rty
+www g re gregh y3434y34yy34  fd- 👋 Hi, I’m @julesgjj951 rt65j65 j65
+- 👀 I’m interested in ...k rtywj 56j65j65j
 - 🌱 I’m currently learning ... jty 34q343634 yhtrher
 - 💞️ I’m looking to collaborate on ...j dytj648856865hzdf 45457 4wysrgt ewtet 4sy s5y5y5us5 i67i476 i
 - 📫 How to reltach me ...6177hgbfxd43tjt dyttttstr  ytje rt 4u45 u45rttrrt ergw erye fitl89lyt jejtyjjytgrt ege
